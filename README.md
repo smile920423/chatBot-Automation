@@ -103,5 +103,5 @@ Pull requests are welcome! For major changes, please open an issue first to disc
 
 ## Contact
 
-For questions or suggestions, feel free to reach out at [eng.sagar.aiub@gmail.com].
+For questions or suggestions, feel free to reach out at [smile920423@outlook.com].
 
